@@ -1,3 +1,3 @@
-# 🍪 Donate me.
+# 🍪 Donation.
 
 https://www.donationalerts.com/r/zettryprojects
